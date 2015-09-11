@@ -1,0 +1,2 @@
+# Bagatelle
+A world of fun and games, of utilities, and amazing store where your emotions will flow like the waterfall. Bagatelle gives you an all in one platform where you can purchase, design, develop and get it delivered at the place where you want. Bagatelle is not just an e-commerce website, its your friend who will understand your deepest and the most innermost desire, it will understand your feelings and emotions is just a simple tap of your thumb. All you need is a smartphone. Bagatelle - "Your friend indeed".
